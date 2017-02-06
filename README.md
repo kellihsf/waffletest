@@ -8,3 +8,5 @@ There should be more waffle pics here:
 I'll still require more delicious waffle pictures. 
 
 more pics coming soon...
+
+hasn't been much activity here lately?
